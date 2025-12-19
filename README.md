@@ -25,7 +25,7 @@ MISImpactLab aims to create a structured, research-oriented portfolio demonstrat
 
 💬 Ask me about management information systems, AI in business, digital transformation, and research prep for PhD applications
 
-📫 How to reach me: [hire.komalsharma@gmail.com] | LinkedIn: [[your LinkedIn lin](https://www.linkedin.com/in/-komalsharma/)]
+📫 How to reach me: [hire.komalsharma@gmail.com] | LinkedIn: [your LinkedIn lin](https://www.linkedin.com/in/-komalsharma/)]
 
 😄 Pronouns: She/Her
 
